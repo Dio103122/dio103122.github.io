@@ -1,5 +1,5 @@
 # *dio103122.github.io*
-:heart: :butterfly: **Dionalyn C. Sumpay** :butterfly: :heart:
+:butterfly: **Dionalyn C. Sumpay** :butterfly: 
 
 ***MEME***
 
